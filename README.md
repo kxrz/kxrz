@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @kxrz
 - 👀 I’m interested in making the web useful for everyone
 - 🌱 I’m currently learning things
-- 📫 How to reach me: kxrz.me
+- 📫 How to reach me: [kxrz.fr](https://kxrz.fr)
